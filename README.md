@@ -7,3 +7,12 @@ https://bit.ly/Mr_BoverC
 
 MIL- MEDIA AND INFORMATION LITERACY LINK
 https://drive.google.com/drive/folders/10YWRWbjYLBIeoiad90Uf92nc7kZBYh7_?fbclid=IwY2xjawSm9fdleHRuA2FlbQIxMABicmlkETF6dW01aEptYTZSeUhNelEzc3J0YwZhcHBfaWQQMjIyMDM5MTc4ODIwMDg5MgABHsq5NPP3cVTqa25B3y_nI9GDVU9caojmmXctKLi15dgk3kWefS5RFrS6xXdG_aem_QUmvE4mFmgA0oOdJVaAKcg
+
+Principles of Marketing -POM LInk
+https://sites.google.com/deped.gov.ph/depedetulayeduplaylist/our-programs/key-stage-4-shs/specialized-subjects-academic-track/abm/principles-of-marketing
+
+POM -MOdules
+https://sites.google.com/deped.gov.ph/project-mobank/second-semester-subjects/principles-of-marketing
+
+POM- CG
+https://depedwebsitestorage.blob.core.windows.net/upload/2019/01/ABM_Principles-of-Marketing-CG.pdf
